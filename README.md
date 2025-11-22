@@ -32,3 +32,67 @@ Saturday morning:
 • Remove from the smoker and let rest for at least 30 minutes to lock in juices.
 
 6. Enjoy!
+
+
+
+Your Turkey Brine (Balanced, Flavor-Packed, and Safe)
+
+This works for a 12–20 lb turkey.
+
+Brine Base
+
+2 gallons of water (you can do half water, half apple cider if you want extra sweetness)
+
+1 ½ cups kosher salt
+(If using table salt, reduce to 1 cup—it's denser.)
+
+2 cups brown sugar (solid)
+
+2 apples, quartered
+
+1–2 onions, quartered
+
+3–4 celery stalks, rough chopped
+
+6–8 garlic cloves, smashed
+
+3–4 bay leaves
+
+1 tablespoon black peppercorns
+
+Fresh herbs if you have them: rosemary, thyme, sage (all optional but fantastic)
+
+
+Optional Boosts
+
+These deepen the flavor but aren't required:
+
+1 cup apple cider or juice
+
+1–2 tablespoons maple syrup (if not saving for butter glaze)
+
+1–2 oranges, sliced
+
+A splash of apple cider vinegar (½ cup, helps the brine penetrate)
+
+
+
+---
+
+The Method (easy version)
+
+1. Heat 1–2 quarts of water in a big pot.
+Add salt + sugar and stir until dissolved.
+
+
+2. Add everything else (fruit, veggies, herbs).
+
+
+3. Pour into a brining bucket or cooler, then add the rest of the cold water/ice until you get 2 gallons total.
+
+
+4. Fully submerge the turkey.
+If it floats, put a heavy plate on top.
+
+
+5. Brine 12–24 hours in the fridge or a cooler kept cold with ice.
